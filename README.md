@@ -1,1 +1,1 @@
-# shrutijoseph.github.io
+shrutijoseph.io
